@@ -1,1 +1,0 @@
-# ManuelRomeroVega.github.io
